@@ -5,6 +5,7 @@
 In this situation of pandemic Association of Civil Engineering Students (ACES) organized a virtual Art competition on the auspicious occasion of Guru Nanak Dev
 Jayanti on 30th November 2020. The event had three categories :-
 i) Poem Writing
+
 ii) Poem Recitation
 iii) Art
 
